@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ALMIGHTYZEUS73
 - 👀 I’m interested in basic coding
 - 🌱 I’m currently learning to ask questions
-- 💞️ I’m looking to collaborate on nothing at the moment
+- I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me Email- Sideslogan7@gmail.com
 
 <!---
